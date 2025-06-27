@@ -9,15 +9,7 @@
   
 🖼️ Screenshots
 ![image](https://github.com/user-attachments/assets/41e727f1-ad65-4988-89db-7dbc54e9b658)
-
-
-
 ![image](https://github.com/user-attachments/assets/50c2a193-881d-43aa-9057-ce9257d44371)
-
-
-
-
-
 ![image](https://github.com/user-attachments/assets/ba99637f-1644-4901-98d9-02c6455fe2bf)
 
 
